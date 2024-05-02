@@ -1,0 +1,6 @@
+**Description:** 
+Zion manifests as a towering figure with storm-cloud-infused skin and eyes that shimmer with the intensity of lightning. He wields a mighty thunderbolt as a symbol of power and authority. His voice echoes like rolling thunder, and his presence commands both fear and awe.
+**Domain:**
+Zion's domain is the tempestuous realm of the skies. He governs thunderstorms, lightning, and the powerful forces of the atmosphere. His influence extends to mountains where the echoes of his thunderous footsteps can be felt, and to open plains where storms rage under his command.
+**History:**
+Zion's origin is rooted in the clash of titanic forces during the creation of the world. Born from the fusion of primal lightning and the roar of thunder, he emerged as a guardian of the celestial balance. Legends speak of him intervening in battles between other elemental spirits, using his storms to restore harmony and order. Over time, he became a symbol of the raw power of nature and a force to be respected by those who navigate the unpredictable realms of weather. Worshipers seek his favour for protection during storms and attribute the regenerative power of rain to his benevolence.

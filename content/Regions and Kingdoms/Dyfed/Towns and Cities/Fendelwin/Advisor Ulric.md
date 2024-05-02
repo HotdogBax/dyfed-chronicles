@@ -1,0 +1,3 @@
+- Principal advisor to the king
+- Very well liked by most members of the castle staff
+- Ex-castle Guard but elevated from a heroic deed

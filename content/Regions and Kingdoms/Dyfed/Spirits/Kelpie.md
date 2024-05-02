@@ -1,0 +1,3 @@
+A neutral but dangerous Fae creature who lives in the river which flows around Fendelwin. Few are to have seen it, and the stories that describe it are more legend than account. But the creature is described as a horse with the tail of a great fish for its back half.
+
+The legends surrounding the Kelpie ascribe several drownings to it. But some legends have said that the Kelpie have saved sailors who have fallen off their boat into rapids, or children who cannot swim. Truth be told the Kelpie is a Fae Spirit who's will cannot be known.
