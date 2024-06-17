@@ -1,0 +1,7 @@
+Nestled in the heart of a vast bowl formed by towering, rugged mountains, lies the fortified medieval city of Hedwyr. The city's stout stone walls, weathered by centuries of time, encircle its bustling streets and provide a formidable defence against any would-be invaders. From a distance, the walls appear almost as an extension of the rocky cliffs that surround the valley, blending seamlessly with the natural landscape.
+
+Within the protective embrace of these walls, Hedwyr thrives. Narrow cobblestone streets wind their way through the city, lined with timber-framed houses, bustling markets, and stately buildings. The city centre boasts a grand castle, its spires reaching towards the sky, a symbol of the city's enduring strength and rich history. Surrounding the castle, a network of smaller fortifications and watchtowers keep vigilant guard over the city's inhabitants.
+
+The mountains themselves are a constant presence, their peaks often shrouded in mist or capped with snow, depending on the season. They create a natural barrier that both isolates and protects Hedwyr, making the city a well-defended bastion in an otherwise untamed wilderness. The river that flows through the valley provides a vital source of water, while the fertile lands around it offer sustenance to the city's population.
+
+Hedwyr, with its imposing walls and majestic mountain backdrop, stands as a testament to resilience and ingenuity, a thriving hub of life and commerce amidst the wild beauty of the natural world.

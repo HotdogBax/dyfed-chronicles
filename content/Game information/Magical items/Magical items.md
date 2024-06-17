@@ -1,3 +1,16 @@
+sending book
+book of the witches of the weaving tapestry
+on the nature of magic by Druid **NAME**
+on the nature of magic (symbol book)
+
+three scrolls
+
+detect thoughts
+calm emotions
+telekinesis 5th lvl
+
+Magic items Ring of spell storing (up to 5th level) (hold monster) Ring of warmth x 3 Gem with a fire elemental
+
 **Broken Wand of Fire**
 
 Uses the spellcasters spell attack and save dc, d20. On a 1, the wand casts fireball on itself and you autofail the save, On 2-7 you cast faery fire (warm flames seem to surround the targets), 8-18 you cast fire bolt, 19-20 you cast fireball. The wand has a total of 10 charges.
