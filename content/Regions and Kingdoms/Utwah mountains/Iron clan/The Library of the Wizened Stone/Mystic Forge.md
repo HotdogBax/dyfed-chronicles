@@ -1,0 +1,1 @@
+A forge used to smelt Adamantine, Mithril and other magical ores.

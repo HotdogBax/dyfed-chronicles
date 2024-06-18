@@ -1,0 +1,1 @@
+A central sacred place for Utwah. Said to be the place that Utwah spirits jump off into the sky.

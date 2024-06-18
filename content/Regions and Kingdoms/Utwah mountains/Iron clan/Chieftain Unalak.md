@@ -1,1 +1,1 @@
-The chief of the Iron clan
+The chief of the Iron clan, a stone giant with a good reputation within Utwah Society save for his very new ideas when it comes to development of systems.
